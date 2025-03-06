@@ -5,8 +5,3 @@
 - 📫 How to reach me: jtbeauchamp04@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I have extensive knowledge on coffee beans and brewing coffee!
-
-<!---
-jtbeauchamp/jtbeauchamp is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
