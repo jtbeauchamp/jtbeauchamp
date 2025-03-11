@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on beginner friendly projects to get comfortable with github!
 - 📫 How to reach me: jtbeauchamp04@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I have extensive knowledge on coffee beans and brewing coffee, as I am a barista for a well known and award winning roastery!
+- ⚡ Fun fact: I have extensive knowledge on coffee beans and brewing coffee, as I am a barista for a well known and award winning roastery Klatch Coffee!
